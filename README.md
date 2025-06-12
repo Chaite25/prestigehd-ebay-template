@@ -1,0 +1,1 @@
+# prestigehd-ebay-template
